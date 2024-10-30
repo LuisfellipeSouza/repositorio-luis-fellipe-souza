@@ -1,0 +1,6 @@
+# Repositorio Luis Fellipe Souza
+Criando repositório da aula do teams
+
+...
+Criado por Luis Fellipe Souza 
+...
